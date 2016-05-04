@@ -16,5 +16,5 @@ Gallery |
 
 --------
 
-| [@ozcaan11](https://twitter.com/ozcaan11)
+| [@ozcaan11](https://twitter.com/ozcaan11/)
 ---
